@@ -7,9 +7,9 @@
 
 ---
 
-<p align="center"> jhariㅤ╱ㅤriaㅤorㅤarctic <br>
-heㅤsheㅤanyㅤ.ㅤ18yoㅤ( 12.11 ) <br>
-vsmpㅤ&&.ㅤwhitepine obsessed idiot <br>
+<p align="center"> ${\textsf{\color{#d40000}jhari}}$ㅤ╱ㅤ<b>ria</b>ㅤᵒʳㅤ <i>arctic</i> <br>
+${\textsf{\color{#d40000}he}}$ㅤsheㅤ<i>any</i> ㅤ♡ㅤ 18 ${\textsf{\color{#d40000}yo}}$ㅤ( <b>12.11</b> ) <br>
+${\textsf{\color{#d40000}vsmp}}$ㅤ &&.ㅤ ${\textsf{\color{#d40000}whitepine}}$ hyperfix !! <br>
 c*h freelyㅤ&&.ㅤw2i, very offtab <br>
 OOMF ME !! i need friends..Ok? ;-; </p>
 
