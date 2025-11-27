@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=volatiletimes&color=d40000&base=200&style=flat&label=_ _i_want_a_poptart_ _" /> <p align="center">
 
 <p align="center">
-<img src="https://64.media.tumblr.com/3bf056035c1e4398e14363b7a82e0700/c96f55502823dc38-43/s540x810/482f53157ce5e0b81be65e65acd2ad39d388d8b5.pnj" width="400" height="400%""/>
+<img src="https://i.ibb.co/JRhD6KLc/to-love-png-for-git.png" width="300" height="300%""/>
 </p>
 
 ---
