@@ -7,7 +7,7 @@
 
 ---
 
-<p align="center"> ${\textsf{\color{#d40000}jhari}}$ㅤ╱ㅤ<b>ria</b>ㅤᵒʳㅤ <i>arctic</i> <br>
+<p align="center"> ${\textsf{\color{#d40000}amari}}$ㅤ╱ㅤ<b>sparrow</b>ㅤᵒʳㅤ <i>jhari</i> <br>
 ${\textsf{\color{#d40000}he}}$ㅤsheㅤ<i>any</i> ㅤ♡ㅤ 18 ${\textsf{\color{#d40000}yo}}$ㅤ( <b>12.11</b> ) <br>
 ${\textsf{\color{#d40000}vsmp}}$ㅤ &&.ㅤ ${\textsf{\color{#d40000}whitepine}}$ hyperfix !! <br>
 c*h freelyㅤ&&.ㅤw2i, very offtab <br>
