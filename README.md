@@ -13,4 +13,4 @@ ${\textsf{\color{#d40000}vsmp}}$ㅤ &&.ㅤ ${\textsf{\color{#d40000}whitepine}}$
 c*h freelyㅤ&&.ㅤw2i, very offtab <br>
 OOMF ME !! i need friends..Ok? ;-; </p>
 
-<p align="center"> making slowlu.. </p>
+<p align="center"> updating this + links at somepoint </p>
